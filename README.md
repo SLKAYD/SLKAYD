@@ -8,7 +8,7 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
-[STRAW](https://sikyd.straw.page)  [PRNS](https://prns.cc/qbykw) 
+[STRAW](https://sikyd.straw.page)  ✦ [PRNS](https://prns.cc/qbykw) ╱ [GUNS](https://guns.lol/thatmobll) 
 
 
 

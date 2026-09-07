@@ -8,7 +8,13 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
-[STRAW](https://sikyd.straw.page)  ✦ [PRNS](https://prns.cc/qbykw) ╱ [GUNS](https://guns.lol/thatmobll) 
+✦ [PRNS](https://prns.cc/qbykw) ╱ [GUNS](https://guns.lol/thatmobll) 
 
+---------
 
+in case u are uhmm wondering I used [click here if u wanna make a perfect Resposity](https://github.com/Vexuliii/CODE-CREDITS) 
 
+ok i'm gonna go focus on my life no I'm not coming back to uhm idk im sowwy. ❤ VERY sorry OK? IM SOORRY (๑꒦ິ ̼ ꒦ິ๑)       BYE MY BEAUTIFUL BEAUTIFUL IDK PPL bbAII 
+
+-------   
+why is BRO talking to themselves? 

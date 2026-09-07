@@ -12,9 +12,13 @@
 
 ---------
 
-in case u are uhmm wondering I used [click here if u wanna make a perfect Resposity](https://github.com/Vexuliii/CODE-CREDITS) 
 
-ok i'm gonna go focus on my life no I'm not coming back to uhm idk im sowwy. ❤ VERY sorry OK? IM SOORRY (๑꒦ິ ̼ ꒦ິ๑)       BYE MY BEAUTIFUL BEAUTIFUL IDK PPL bbAII 
+in case u are uhmm wondering I used [click here if u wanna make a perfect Resposity](https://github.com/Vexuliii/CODE-CREDITS)  ( I recommend going to the third or that said Frequently asked questions)   THIS AIN'T mine OK. 
+
+
+no I'm not coming back after my other uncle just died bruh I'm so fucking stressed OUTT omfg.. 
+   ╥﹏╥ wtv enjoy the perfect or the Resposity u wanted 
+
 
 -------   
 why is BRO talking to themselves? 
